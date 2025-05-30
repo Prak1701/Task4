@@ -23,5 +23,4 @@ Gained hands-on experience in:
 
 Outpt -
 
-
-
+![Image](https://github.com/user-attachments/assets/2b710e8d-8f69-4d77-bc4e-3a20410b90f7)
